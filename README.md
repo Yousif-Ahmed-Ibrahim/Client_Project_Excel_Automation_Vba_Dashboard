@@ -91,6 +91,9 @@ This was my first paid freelance project.
 The client rated the experience 5/5 and acknowledged the level of detail, speed, and honest communication throughout the process.
 
 The solution met all their goals—and delivered more than expected.
+  
+Rated 5/5 — [View full feedback](https://mostaql.com/u/Yousif_Ahmed44/reviews/8912819)
+
 
 ---
 
